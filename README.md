@@ -1,6 +1,6 @@
-# Gaurav Ahire
+<img src="https://ibb.co/J7mB0x9" width="100" height="100"/>
 
-![Screenshot 2024-03-30 175332](https://github.com/user-attachments/assets/2d5d284c-433a-4037-a631-06fe82888c06)
+# Gaurav Ahire
 
 Dear Hiring Manager,
 
